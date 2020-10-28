@@ -4,4 +4,7 @@ Is it though?
 Soccer has been long defined as a "meaningless" and "aggressive" sport. 
 Soocer has also been hated by some partially because it is a male-dominated sport, and females are not given much opportunity to play soccer.
 Soccer has also been loved by some partially due to its carefree nature.
-Personally, I feel that over the years, 
+Personally, I feel that over the years, soccer has evolved from a recreational sport to a more competitive sport.
+As a result, soccer is gaining more and more popularity, but also hatred.
+As a soccer player myself, I have gained a lot from playing soccer.
+From making new friends to keeping fit, soccer is the ultimate combination of virtues and fun.
