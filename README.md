@@ -8,3 +8,7 @@ Personally, I feel that over the years, soccer has evolved from a recreational s
 As a result, soccer is gaining more and more popularity, but also hatred.
 As a soccer player myself, I have gained a lot from playing soccer.
 From making new friends to keeping fit, soccer is the ultimate combination of virtues and fun.
+Sportsmanship, teamwork, resilience, are virtues that one can never learn from a textbook, from a teacher.
+One can only learn these virtues from playing the sport.
+Soccer also bridges gaps between races, religion, genders, ages, and many more.
+No matter who you are, where you come from, you can always enjoy a fun game of soccer.
